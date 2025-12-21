@@ -1,4 +1,4 @@
-(https://github.com/user-attachments/assets/ef01367c-d934-4eec-af06-b13587471bf1)
+simple little thing about me lol lol XP 
 
 You can either call me Vance or Vincent! 
 i'm an epileptic transman that loves pastels
